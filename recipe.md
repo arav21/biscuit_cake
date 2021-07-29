@@ -1,0 +1,1 @@
+crush biskuit, add 4 spoon sugar, 3 cup milk, 1/2 spoon eno  mix well and make a soft dow
